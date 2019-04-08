@@ -77,4 +77,4 @@ Begin/continue working on your final projects
 * [Aaron Parecki: “Owning my Quantified Self Data”](https://vimeo.com/groups/quantifiedself/videos/251426796)
 * [Lillian Karabaic: “What If My Life Was The Economy Of A Small Country?”](https://vimeo.com/groups/quantifiedself/videos/227181779)
 
-* for Kensu-rha: [Laila Zemrani: “Can A Picture Be Worth A Thousand Numbers”](https://vimeo.com/groups/quantifiedself/videos/226861328)
+* for Khensu-Ra: [Laila Zemrani: “Can A Picture Be Worth A Thousand Numbers”](https://vimeo.com/groups/quantifiedself/videos/226861328)
